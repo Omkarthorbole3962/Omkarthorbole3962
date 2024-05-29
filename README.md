@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Devops Tools
 - 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me omkarthorbole15701@gmail.com
-- 😄 Pronouns: 
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: 
 
 <!---
